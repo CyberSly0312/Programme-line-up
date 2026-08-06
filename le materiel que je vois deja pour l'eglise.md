@@ -3,3 +3,4 @@ Light DMX controller https://www.amazon.com/JCYW-FLODY-Controller-Lighting-Conso
 Stage Light x 2 https://www.amazon.com/dp/B0D7QBHV5Y/ref=sspa_dk_detail_1?pd_rd_i=B0D7QBHV5Y&pd_rd_w=Hhkig&content-id=amzn1.sym.4f5afe61-a551-4f21-a495-c7c4f2997a96&pf_rd_p=4f5afe61-a551-4f21-a495-c7c4f2997a96&pf_rd_r=0Q1Y76MAW11G8Q11JB3A&pd_rd_wg=3gUnQ&pd_rd_r=7d67f50e-0f3b-4f8f-a3c4-620245fb72f9&sp_csd=d2lkZ2V0TmFtZT1zcF9kZXRhaWxfdGhlbWF0aWM&th=1
 Stage box https://www.amazon.com/dp/B00546PM80/ref=sspa_dk_detail_5?pd_rd_i=B007CNDAX2&pd_rd_w=ajTmL&content-id=amzn1.sym.4adc092d-0184-45e6-8bd0-773f48fbf8ff&pf_rd_p=4adc092d-0184-45e6-8bd0-773f48fbf8ff&pf_rd_r=A0V5DP56693BK2NJ32AE&pd_rd_wg=HcbRn&pd_rd_r=c3fda0ed-4f0f-4e01-b222-cd9bb15220d2&sp_csd=d2lkZ2V0TmFtZT1zcF9kZXRhaWxfdGhlbWF0aWM&th=1
 
+for the drum DIY cage https://www.youtube.com/watch?v=q8Jei42-GOg
