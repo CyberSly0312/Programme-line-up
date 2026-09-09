@@ -11,3 +11,7 @@ https://www.amazon.com/dp/B00546PM80/ref=sspa_dk_detail_5?pd_rd_i=B007CNDAX2&pd_
 
 ## 5. for the drum DIY cage 
 https://www.youtube.com/watch?v=q8Jei42-GOg
+
+
+## Array speakers
+https://www.alibaba.com/product-detail/LA-1AD-Dual-6-5-Inch_1601381221980.html?spm=a2700.find_similar_products.normal_offer.6.28b467afKjP6pG&priceId=7bab6a5693b040fbb97eee96ae2441f6
