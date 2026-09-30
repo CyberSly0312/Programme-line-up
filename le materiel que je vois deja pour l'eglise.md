@@ -26,3 +26,8 @@ https://www.toa.fr/xom-assets/SR-F04__-F08_Leaf_%28en%29.pdf?type=1548975600&v=1
 https://www.behringer.com/en/products/0805-AAN
 
 https://www.cvr-audio.com/Products_details/MX-16.html CVR mixeurs numeriques de 600 dollars
+
+
+## Cameras
+
+https://www.refurbed.de/en-de/p/go-pro-hero-8/18989c/ GoPro pour le musicens
