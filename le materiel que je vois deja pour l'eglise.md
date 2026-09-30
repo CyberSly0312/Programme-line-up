@@ -31,3 +31,7 @@ https://www.cvr-audio.com/Products_details/MX-16.html CVR mixeurs numeriques de 
 ## Cameras
 
 https://www.refurbed.de/en-de/p/go-pro-hero-8/18989c/ GoPro pour le musicens
+
+
+https://www.foto-erhardt.com/second-hand.html Site qui revend les secondes mains de cameras
+
