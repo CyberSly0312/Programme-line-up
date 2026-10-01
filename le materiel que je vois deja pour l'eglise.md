@@ -39,6 +39,7 @@ https://www.foto-erhardt.com/second-hand.html Site qui revend les secondes mains
 
 https://www.ebay.de/itm/287171877559?_trksid=p2332490.c101875.m1851&itmprp=cksum%3A28717187755985c257fcdfd249e4934b27b084bb22c8%7Cenc%3AAQALAAABIPublsLHMrwa19e7ruMkC3MA1bD5ySgze%252B0f4QBr6mVMH3bgGFjLCZSScvtNoNg5mDjAm05yApoh7QUriUcQgG%252F5261INSesJMdVM1y%252Bi1bHVO3EoaHdX%252FQcVp0KG0CH9J95tt2vm7SRw9bGJCcSUa6%252BMgyJeItDxOE79qBFZrqeghkS4LbbLbLLnzkoaBHVrda0pqDLuBkuoWJoUpNEOix%252BTPmLPXGoRuFs6xVIzy01UG3LGF4OCpFLiFcgKW8Mfe3znLdUy%252FNF1E9ov5qaoLLKQdXhSA4J9lh9EsogxvqtqJmv%252B4tR4oeczN%252FBxIWTfR%252BhJIgDwyPDklPhK9jfu1U1PfAJrm82FoTKf9McsuIRAdqHf5NQ9f2khfNtXyFYyg%253D%253D%7Campid%3APL_CLK%7Cclp%3A2332490&itmmeta=01M3SV0R181A8WMS61WXG0073F camescope en vente
 
+https://www.canon-europe.com/video-cameras/xa75/ un tres bon produit
 
 
 ## 
