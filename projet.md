@@ -1,0 +1,1 @@
+je veux proposer une petite vision de comment est ce quue nous pouvons rendre notre église plus dynamique 
