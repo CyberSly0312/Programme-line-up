@@ -1,1 +1,3 @@
-je veux proposer une petite vision de comment est ce quue nous pouvons rendre notre église plus dynamique 
+je veux proposer une petite vision de comment est ce quue nous pouvons rendre notre église plus dynamique et plus vivante. je ne donne pas mon avis en tant qu'expert. Mais en tant que jeune qui a visité plusieurs églises et voir un peu comment fonctionne ces assemblées. Je me permets de penser à quelque chose de ce genre parce je suis née dans cette église et j'y suis pratiquement grandit et je n'ai point d'autre assemblée au je me sens chez moi plus que cette église la. En plus de cela, je suis très reconnaissant au Seigneur pour la vie du Leadership de l'église composé du Pasteur principal, les diacres et tous les responsables de l'église pour une compréhension de nous jeunes et qui nous donnent un cadre illimité pour exprimer les dons que le seigneur nous a donné.
+
+Pour 
