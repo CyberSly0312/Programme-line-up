@@ -28,7 +28,7 @@ https://www.toa.fr/xom-assets/SR-F04__-F08_Leaf_%28en%29.pdf?type=1548975600&v=1
 https://www.behringer.com/en/products/0805-AAN
 
 https://www.cvr-audio.com/Products_details/MX-16.html CVR mixeurs numeriques de 600 dollars
-
+ Mais actuellement le plus claire et le plus simple des mixuer qui fera notre affaire sera le behringer Xair 18. Grace a son budget et sera plus adapter dans notre c
 
 ## Cameras
 
