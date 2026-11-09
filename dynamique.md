@@ -78,4 +78,4 @@ Voici comment le son et la musique agissent sur l'ambiance pour attirer et mettr
 4. L'impact psychologique du chant communautaire
 
 • L'effet d'entraînement : Voir et entendre une foule chanter ensemble avec passion génère une énergie positive et une curiosité immédiate chez le visiteur, même s'il ne partage pas encore les mêmes convictions.
-• L'accessibilité des paroles : Comme mentionné pour les écrans, si la musique est bonne et que les paroles sont faciles à suivre visuellement, le visiteur ne se sentira pas spectateur d'un rituel secret, mais invité à une célébration ouverte.
+• L'accessibilité des paroles : Comme mentionné pour les écrans, si la musique est bonne et que les paroles sont faciles à suivre visuellement, le visiteur ne se sentira pas spectateur d'un rituel secret, mais invité à une célébration ouverte. 
