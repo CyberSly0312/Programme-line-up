@@ -1,5 +1,7 @@
 # Introduction
 
+je pense que j'ai fini avec ca
+
 La présente proposition a pour objectif de partager une réflexion sur la manière dont nous pourrions rendre notre Église plus dynamique et plus vivante, notamment en ce qui concerne l'ambiance, la vie communautaire et l'expérience du culte.
 
 Je tiens à préciser que cette réflexion ne vient pas de moi en tant qu'expert, mais plutôt en tant que jeune ayant eu l'occasion de visiter plusieurs assemblées et d'observer différentes manières de fonctionner. Ces expériences m'ont permis de découvrir certaines approches qui pourraient nous inspirer et nous amener à réfléchir à ce que nous pouvons améliorer au sein de notre propre assemblée.
