@@ -1,6 +1,7 @@
 # Introduction
 
 je pense que j'ai fini avec ca
+##
 
 La présente proposition a pour objectif de partager une réflexion sur la manière dont nous pourrions rendre notre Église plus dynamique et plus vivante, notamment en ce qui concerne l'ambiance, la vie communautaire et l'expérience du culte.
 
